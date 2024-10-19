@@ -1,1 +1,0 @@
-# vista980622.github.io
